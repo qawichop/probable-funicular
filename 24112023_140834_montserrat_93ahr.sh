@@ -1,0 +1,1 @@
+In a study that was done by the University of Chicago in 1907, it was concluded that the easiest color to spot is yellow. This is why John Hertz, who is the founder of the Yellow Cab Company picked cabs to be yellow
