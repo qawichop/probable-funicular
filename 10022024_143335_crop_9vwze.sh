@@ -1,0 +1,1 @@
+When former Texas Governor James Hogg was on his deathbed he made a special request that a pecan tree be planted at the head of his grave instead of a tombstone. The governor passed away on March 2, 1906, which is Texas Independence Day. The pecan tree is now the state tree of Texas
